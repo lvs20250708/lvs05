@@ -10,4 +10,4 @@
 
 平台提供多种精彩视频资源，包括大陆国产乱伦、无码片段、成人影视等。所有影片支持极速播放，高清画质，无广告干扰，确保您享受顺畅的观影体验。快速更新，丰富多样，满足您的各种需求，随时随地观看。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/lvs20250708/lvs05 ）</span>
